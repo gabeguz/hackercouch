@@ -15,16 +15,8 @@ It’s like CouchSurfing, except CouchSurfing sucks. So does AirBnB, hostels and
 
 ## Crash on my couch
 
-* On the road -- couches likely in Seattle and around the West summer and fall 2013
+* Send me a request, I have a guest room available in Montreal, QC up until August 15th. 
 
 ## Have me crash on your couch
 
-* apr 15-20 - new york
-* apr 20-25 - rural vermont and maine
-* apr 25-30 - toronto
-* may 1-8 - detroit
-* may 8-15 - santa fe
-
-* jun 15-20 - I80 WA to MA
-* jun 20-30 - Boston
-* July 1-5 - I90 MA to WA
+* No current trips planned
